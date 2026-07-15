@@ -135,8 +135,8 @@ Founder & CEO — ASRAT 4INONE LTD
 
 ## 🌍 Demo & Contact  
 
-🔗 **Official Website:** [asrat.topdeveloper.info](https://asrat.topdeveloper.info)  
-📲 **App Demo:** [AppCreator24 Demo](https://www.appcreator24.com/app3579439-mf81o9)  
+🔗 **Official Website:** https://assrat.iceiy.com](https://asrat.topdeveloper.info)  
+📲 **App Demo:** [https://asrat-super-apps-com.lovable.app/](https://asrat-apps.lovable.app/)  
 💬 **WhatsApp:** [Chat Now](https://wa.me/2347081647156)  
 📨 **Telegram:** [@abbanfahad77](https://t.me/abbanfahad77)  
 🐦 **Twitter/X:** [@abufahad778800](https://x.com/abufahad778800)  
